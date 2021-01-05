@@ -1,1 +1,1 @@
-# coconut-milk-soft-serve
+the recipe is about how to make delicious coconut soft serve just like the yummy soft serve of Mcdonalds in 1o mins.
