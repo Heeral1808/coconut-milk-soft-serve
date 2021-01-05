@@ -22,4 +22,4 @@
 8.now turn its side again and again for 5 to 10 mins
 
 
-9.take the the ziplock bag containg the coconut mixture, and you soft serve is ready!
+9.take the the ziplock bag contaning the coconut mixture, and you soft serve is ready!
